@@ -2,6 +2,8 @@ Nombre y Apellido: Nadia Mata
 
 Legajo:9805
 
+![](https://lh3.googleusercontent.com/a-/AOh14GgnQe6pqDOYiJX_Gsutiw_CksTCyOlkUAMFFLledxk=s60-cc-rg)
+
 Mi nombre es Nadia, tengo 25 años. Actualmente soy estudiante de Ingenieria en Sistemas 
 en la Universidad Tecnologica Nacional. Tambien trabajo en la especialidad cumpliendo el cargo 
 de coordinadora del sector de TI  (Sistemas)en una empresa de logistica. 
