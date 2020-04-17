@@ -13,5 +13,7 @@ Tengo mascotas, 1 perrito que se llama Santino rescatado de la calle :D  y es mu
 Mi vocacion es enseñar, antes de trabajar en sistemas era profe de nivel secundario de las materias:
 Matemáticas, Quimica General,Fisica, Electricidad, y daba talleres de Informática. Los talleres podian ser desde sistemas operativos, hasta programación. Hoy en dia con lo que es respecto a enseñanza doy cursos de capacitación informática a los distintos sectores en la empresa donde trabajo. 
 
+Personalmente siempre intento dar lo mejor de mi, me gustan los trabajos en grupo y si eso se convierte en exito tambien lo tomo como un objetivo personal.
+Me gusta participar siempre de la mejor manera y educadamente, no me gusta discutir con la gente. De hecho si se puede encontrar una soluc a las discrepancias  hablando mucho mejor :) 
 Mi perfil de LinkedIn: https://www.linkedin.com/in/nadiamata
 
