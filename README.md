@@ -12,7 +12,7 @@ ademas hago Natación 3 veces a la semana y como hobby cuando tengo tiempo me gu
 En un pasado muy lejano  jugaba campeonatos de ajedrez pero lo dejé cuando comencé la Universidad .
 Tengo mascotas, 1 perrito que se llama Santino rescatado de la calle :D  y es muy dulce.
 Mi vocacion es enseñar, antes de trabajar en sistemas era profe de nivel secundario de las materias:
-Matemáticas, Quimica General,Fisica, Electricidad, y daba talleres de Informática. Los talleres podian ser desde sistemas operativo, hasta programación. Hoy en dia con lo que es respecto a enseñanza doy cursos de capacitación informático a los distintos sectores en la empresa donde trabajo. 
+Matemáticas, Quimica General,Fisica, Electricidad, y daba talleres de Informática. Los talleres podian ser desde sistemas operativos, hasta programación. Hoy en dia con lo que es respecto a enseñanza doy cursos de capacitación informática a los distintos sectores en la empresa donde trabajo. 
 
 Mi perfil de LinkedIn: https://www.linkedin.com/in/nadiamata
 
