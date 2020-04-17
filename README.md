@@ -2,8 +2,7 @@ Nombre y Apellido: Nadia Mata
 
 Legajo:9805
 
-![](https://lh3.googleusercontent.com/a-/AOh14GgnQe6pqDOYiJX_Gsutiw_CksTCyOlkUAMFFLledxk=s60-cc-rg)
-
+![](https://github.com/pdep-utn-frd/presentacion-nadiamata/blob/master/Nadia.jpeg)
 Mi nombre es Nadia, tengo 25 años. Me recibi de Técnica en Sistemas y actualmente soy estudiante
 de la carrera de Ingenieria en Sistemas de Información en la Universidad Tecnológica Nacional.
 Trabajo en la especialidad cumpliendo el cargo de coordinadora de TI (sistemas) en una empresa de logistica.
